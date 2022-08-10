@@ -1,24 +1,28 @@
-Hello!  I'm MagpieScholar or The Gilded Magpie.  I mod Skyrim and Wildermyth and I like to create datasets to populate random generators.
+Hello!  I'm MagpieScholar or The Gilded Magpie.  
+
+
+I mod Skyrim and Wildermyth and I like to create datasets to populate random generators.  
+
+
+I do a little voice acting, a little surface/pattern design, and a lot of writing.
 
 
 
-Please be invited to take advantage of my bizarre knowledge base on:
+Please be invited to take advantage of my bizarre knowledge base, including:
 
--Euro-American food history!
+🍞 Euro-American food history!
 
--Victorian fashion!
+👒 Victorian fashion!
 
--formal mourning traditions!
+🖤 formal mourning traditions!
 
--English grammar!
+📖 English grammar!
 
--obscure Tolkien lore!
+🌳 obscure Tolkien lore!
 
--paper dolls!
+🛡️ medieval and early modern heraldry!
 
--medieval and early modern heraldry!
-
--geese!
+🦢 geese!
 
 
 
