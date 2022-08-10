@@ -1,5 +1,7 @@
 Hello!  I'm MagpieScholar or The Gilded Magpie.  I mod Skyrim and Wildermyth and I like to create datasets to populate random generators.
 
+
+
 Please be invited to take advantage of my bizarre knowledge base on:
 
 -Euro-American food history!
@@ -17,6 +19,8 @@ Please be invited to take advantage of my bizarre knowledge base on:
 -medieval and early modern heraldry!
 
 -geese!
+
+
 
 I also enjoy Arthuriana, vintage appliances, and learning interesting facts about cannibalism.
 
